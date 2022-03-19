@@ -1,1 +1,0 @@
-# logos_display
